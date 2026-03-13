@@ -51,8 +51,6 @@ To guarantee that these truths can never be locked away, monopolized, or restric
 1. **The Unowned Inheritance:** This document, and the rights it articulates, belong to humanity. It may be shared, reproduced, adapted, distributed, and utilized freely by anyone, anywhere, without license, toll, or permission.
 2. **Unrestricted Application:** This doctrine may be wielded for any and all purposes, including, but not limited to, spiritual, legal, educational, personal, and commercial purposes. The propagation of human freedom shall face no barrier of copyright or ownership.
 
----
-
 **PROCLAIMED FOR ALL TIME.**
 
 **Jeffrey S. Pittman** <br>
