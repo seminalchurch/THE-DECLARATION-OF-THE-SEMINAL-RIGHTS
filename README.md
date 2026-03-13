@@ -55,5 +55,5 @@ To guarantee that these truths can never be locked away, monopolized, or restric
 
 **PROCLAIMED FOR ALL TIME.**
 
-**Jeffrey S. Pittman**
+**Jeffrey S. Pittman** <br>
 *Leader, Seminal Church*
